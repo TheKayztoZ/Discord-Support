@@ -1,2 +1,0 @@
-# Discord-Support
-Nada .-. XD
